@@ -4,7 +4,7 @@ Povím vám příběh. Minulý rok jsem projížděl podél pobřeží Turecka a
 
 S Muratem jsme se také bavili o současném prezidentu Erdoğanovi, který chce z Turecka udělat diktaturu. Proč ho má rád on i jeho přátelé. Když jsem si ho přidal mezi přátelé na Facebooku, neměl tam jiné příspěvky než ty na jeho podporu \(to bylo ještě v roce 2016, kdy měli Turci povolený přístup k Facebooku či Wikipedii, dnes už na tyto stránky nesmí\). Mně tímto pomohl o trochu lépe pochopit to, proč si Turci v nedávných volbách vybrali raději cestu k diktatuře než cestu k větší svobodě.
 
-To je první důvod, proč jsem se rozhodl vydat na cestu kolem světa: **studium**. Můžete si o různých zemích přečíst články, vidět je na fotografiích a videích, ale to vám nenahradí to, když můžete s místními opravdu mluvit. Lidé jsou naučeni říkat fráze, ale až jejich neverbální komunikace vám často prozradí, co si skutečně myslí. _Potřebujete empatii a čas, peníze vám vůbec nepomůžou_.
+To je první důvod, proč jsem se rozhodl vydat na cestu kolem světa: **studium**. Můžete si o různých zemích přečíst články, vidět je na fotografiích a videích, ale to vám nenahradí to, když můžete s místními lidmi opravdu mluvit. Lidé jsou naučeni říkat fráze, ale až jejich neverbální komunikace vám často prozradí, co si skutečně myslí. _Potřebujete empatii a čas, peníze vám vůbec nepomůžou. _
 
 _\(bude pokračování!\)_
 
