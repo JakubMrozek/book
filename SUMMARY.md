@@ -1,5 +1,5 @@
 # Summary
 
 * [Úvod](README.md)
-* [First Chapter](chapter1.md)
+* [Cesta kolem světa?](chapter1.md)
 
