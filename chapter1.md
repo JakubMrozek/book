@@ -10,5 +10,7 @@ Proto jsem se rozhodl změnit dopravní prostředek a místo kola co nejvíce ce
 
 ## Strach z neznámého
 
+Představte si, že jdete po chodníku a rozhodnete se přejít na druhou stranu ulice. Nerozhlédnete se, vstoupíte do vozovky a najednou slyšíte troubení auta. Podíváte se na stranu a vidíte, že se na vás řítí auto. Co se stane? 
+
 _\(bude pokračování!\)_
 
