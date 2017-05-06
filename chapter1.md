@@ -12,7 +12,5 @@ Strach z neznámého
 
 
 
-
-
 _\(bude pokračování!\)_
 
