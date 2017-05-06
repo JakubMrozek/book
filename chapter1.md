@@ -6,11 +6,9 @@ S Muratem jsme se také bavili o současném prezidentu Erdoğanovi, který chce
 
 To je první důvod, proč jsem se rozhodl vydat na cestu kolem světa: **studium**. Můžete si o různých zemích přečíst články, vidět je na fotografiích a videích, ale to vám nenahradí to, když můžete s místními lidmi opravdu mluvit. Lidé jsou naučeni říkat fráze, ale až jejich neverbální komunikace vám často prozradí, co si skutečně myslí. _Potřebujete hodně empatie a času, peníze vám vůbec nepomůžou._ To je na tom to hezké, že si tyhle zážitky nekoupíte, ale musíte si je vybojovat. Získat si něčí důvěru po hodině tak, aby s vámi ten člověk mluvil jako s někým, koho zná roky, je hodně těžké, ale má to, alespoň pro mě, velkou cenu.
 
-Proto jsem se rozhodl změnit dopravní prostředek a místo kola co nejvíce cestovat stopem. Pro přespání budu využívat hlavně AirBnB, couchsurfing a další podobné služby. Ani s jedním nemám vůbec žádné zkušenosti.
+Proto jsem se rozhodl změnit dopravní prostředek a místo kola co nejvíce cestovat stopem. Pro přespání budu využívat hlavně AirBnB, couchsurfing a další podobné služby. Ani s jedním nemám vůbec žádné zkušenosti, ale umožní mi to být co nejvíce s místními lidmi.
 
 ## Strach z neznámého
-
-
 
 _\(bude pokračování!\)_
 
