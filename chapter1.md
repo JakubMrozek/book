@@ -4,5 +4,7 @@ Povím vám příběh. Minulý rok jsem projížděl podél pobřeží Turecka a
 
 Murat byl také téměř fanatický podporovatel současného prezidenta Erdoğan. Když jsem si ho přidal mezi přátelé na Facebooku, neměl tam jiné příspěvky než ty na jeho podporu \(to bylo ještě v roce 2016, kdy měli Turci povolený přístup k Facebooku či Wikipedii, což už dnes nemají\). O Erdoğanovi jsme se bavili hodně a mě došlo, jak velký rozdíl mezi námi je, pokud se začneme bavit o svobodě. Murat by označil Turecko jako svobodný a demokratický stát, ale platí to jen tehdy, když se bude člověk pohybovat v prostoru mezi striktně vytýčenými mantinely. I v Česku nemůžete dělat úplně všechno, ale ten prostor, ve kterém se můžete pohybovat, je podstatně širší.
 
+To je první důvod, proč jsem se rozhodl vydat na cestu kolem světa: **studium**. 
+
 _\(bude pokračování!\)_
 
