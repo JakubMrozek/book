@@ -10,7 +10,11 @@ Proto jsem se rozhodl změnit dopravní prostředek a místo kola co nejvíce ce
 
 ## Strach z neznámého
 
-Představte si, že jdete po chodníku a rozhodnete se přejít na druhou stranu ulice. Nerozhlédnete se, vstoupíte do vozovky a najednou slyšíte troubení auta. Podíváte se na stranu a vidíte, že se na vás řítí auto. Co se stane? Tenhle váš vjem začne procházet přes různá mozková centra a hned na začátku ho zachytí jedno \(myslím, že se jmenuje amygdala\), která nastalou situaci vyhodnotí jako život ohrožující. 
+Představte si, že jdete po chodníku a rozhodnete se přejít na druhou stranu ulice. Nerozhlédnete se, vstoupíte do vozovky a najednou slyšíte troubení auta. Podíváte se na stranu a vidíte, že se na vás řítí auto. Co se stane? Tenhle váš vjem začne postupně procházet přes různá mozková centra. Ještě dřív, než se dostane do neokortexu, centra myšlení, tak ho zpracovává jiné mozkové centrum, amygdala, která vyhodnotí situaci jako život ohrožující a začíná organizovat záchranu. Posílá informaci mozkovému kmeni, že je potřeba zvýšit puls a krevní tlak, mobilizuje mozková centra pro pohyb, dává pokyn fixovat pozornost na zdroj nebezpečí a připravuje svaly na reakci.
+
+
+
+ a hned na začátku ho zachytí jedno \(myslím, že se jmenuje amygdala\), která nastalou situaci vyhodnotí jako život ohrožující. Mozek začne ihned informovat další části těla, že je tady vážný problém. Dá pokyn srdci, že je potřeba zvýšit výkon. Začne posílat 
 
 _\(bude pokračování!\)_
 
