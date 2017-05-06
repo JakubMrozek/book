@@ -4,9 +4,5 @@ Povím vám příběh. Minulý rok jsem projížděl podél pobřeží Turecka a
 
 Můžete si o různých zemích přečíst články, vidět je na fotografiích a videích, ale to vám nenahradí to, když můžete s místními opravdu mluvit. Lidé jsou naučeni říkat fráze, ale až jejich neverbální komunikace vám prozradí, co si skutečně myslí.
 
-
-
-mluvit. Na něco se zeptáte a z neverbální odpovědi zjistíte často více než ze slov.
-
 _\(bude pokračování!\)_
 
