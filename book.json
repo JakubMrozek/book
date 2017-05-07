@@ -1,4 +1,5 @@
 {
-    "author": "Jakub Mrozek",
-    "title": "Dundee vs. svět"
+     "author": "Jakub Mrozek",
+     "title": "Dundee vs. svět",
+     "plugins": ["thePlugin"]
 }
