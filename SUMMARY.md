@@ -2,6 +2,5 @@
 
 * [Úvod](README.md)
 * [Cesta kolem světa?](chapter1.md)
-* [FAQ](faq.md)
 * [Kontakt](kontakt.md)
 
