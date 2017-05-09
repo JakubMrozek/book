@@ -22,7 +22,7 @@ Pro zajímavost jsem si našel, co přesně se o bezpečnosti v Albánii dočtu 
 
 
 
-
+A to je přesně ono. Co jsem _četl_ a co jsem _slyšel_. 
 
 
 
