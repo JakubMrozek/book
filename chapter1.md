@@ -8,7 +8,7 @@ To je první důvod, proč jsem se rozhodl vydat na cestu kolem světa: **studiu
 
 Proto jsem se rozhodl změnit dopravní prostředek a místo kola co nejvíce cestovat stopem. Pro přespání budu využívat hlavně AirBnB, couchsurfing a další podobné služby. Ani s jedním nemám vůbec žádné zkušenosti, ale umožní mi to být co nejvíce s místními lidmi.
 
-## Strach z neznámého
+## Projekt 1000 tváří
 
 Představte si, že jdete po chodníku a rozhodnete se přejít na druhou stranu ulice. Nerozhlédnete se, vstoupíte do vozovky a najednou slyšíte troubení auta. Podíváte se na stranu a vidíte, že se na vás řítí auto. Co ve vás začne odehrávat? Vjem velkého blížícího se objektu začne postupně procházet přes různá mozková centra. Ještě dřív, než se dostane do neokortexu, centra myšlení, tak ho zpracovává jiné mozkové centrum, amygdala, která vyhodnotí situaci jako život ohrožující a začíná organizovat záchranu. Posílá informaci mozkovému kmeni, že je potřeba zvýšit puls a krevní tlak, mobilizuje centra pro pohyb, dává pokyn fixovat pozornost na zdroj nebezpečí, připravuje svaly na reakci a urgentně žádá paměťové kórové systémy, aby dodaly všechny dostupné znalosti a zkušenosti související s nebezpečím. Take požaduje vypnutí všech momentálně nedůležitých orgánů, takže pokud jste třeba pospíchali na záchod, no, tak už je to vyřešeno:-\) Konečně dostává mozek informaci, že má pohyb dopředu rozhodně zastavit a jít naopak zpět, což tělo také provede. V tu chvíli kolem vás projede těsně auto. Naštěstí vás nesrazilo, ale bylo to těsné! Teprve nyní si začínáte uvědomovat, co se vlastně stalo a dokážete celou situaci slovně pojmenovat. Podstatné je, že v krizové situaci převzalo vládu emoční centrum nad logickým myšlením, které je mnohem složitější a než byste informaci vydolovali odtud, tak by vás to auto srazilo. Vidíte, některá rozhodnutí ani nemůžete provést jinak než emocemi, protože to fyzicky není možné.
 
@@ -16,7 +16,7 @@ Tato emoční centra, která mohou za vyvolávání strachu, jsou pro člověka 
 
 Než jsem vjížděl do Albánie, dostal jsem neuvěřitelné množství upozornění, co všechno se mi určitě stane. A hned po přejetí hranic jsem měl opravdu pocit, že to dobře nedopadne. Rozbořené silnice a podél nich co kousek mrtvola zvířete, z oken domů vyčuhující sláma, zírající lidé a do toho všeho zní z ampilónů svolávání k modlitbě pro muslimy, které je docela strašidelné, když ho člověk slyší poprvé. Láďa Zibura někde psal, že po doznění očekával výbuch jako v amerických filmech. Přesně ten pocit jsem měl i já! Nakonec jsem v té zemi strávil týden a vůbec se mi nechtělo odjíždět. Ze všech evropských zemí, ve kterých jsem byl, se mi právě v Albánii líbilo nejvíce, v žádné jiné evropské zemi jsem nezažil tolik přátelských lidí. Když jsem pak hledal statistiky, jak vlastně nebezpečná Albánie je, zjistil jsem, že moje počáteční obavy se vůbec nezákladaly na pravdě. Ano, Albánie je _nebezpečnější_ než třeba Česko, ale není _nebezpečná_. Pokud zemi projede na kole jako já, máte velice malou šanci, že se vám něco opravdu stane.
 
-Obavy z toho, že by se mi během cesty fyzicky něco stalo, nemám už téměř vůbec. 
+Obavy z toho, že by se mi během cesty fyzicky něco stalo, nemám už téměř vůbec.
 
 _\(bude pokračování!\)_
 
