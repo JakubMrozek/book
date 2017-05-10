@@ -18,9 +18,7 @@ Než jsem vjížděl do Albánie, dostal jsem neuvěřitelné množství upozorn
 
 Obavy z toho, že by se mi během cesty fyzicky něco stalo, nemám už téměř vůbec. Děsí mě ale představa toho, že nevím, co bude další den. Při všech mých cestách jsem vždy věděl, kde budu spát ten další den. Našel jsem si jeden, dva penziony a hotel do rezervy. A vždy jsem měl u všeho plán A, B a pro jistotu i C. Zálohování fotek mám na několika službách, protože co kdyby jedna měla problém. Bankovních účtů mám několik, protože co kdyby jedna banka zkrachovala. A neptejte se mě, kolik mám cestovních pasů do rezervy, kdyby se jeden ztratil, to vám nepovím.
 
-
-
-
+To je druhý důvod, proč jsem se rozhodl vydat na cestu kolem světa: **naučit se žít v nejistotě**. 
 
 _\(bude pokračování!\)_
 
