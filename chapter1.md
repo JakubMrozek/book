@@ -1,4 +1,4 @@
-# Cesta kolem světa?
+# Proč cesta kolem světa
 
 Minulý rok jsem projížděl podél pobřeží Turecka a občas se stalo, že jsem musel spát venku, protože nikde v okolí nebyla žádná možnost ubytování. Jednou jsem už téměř za tmy vjedl do vesnice a pomalu se začal chystat ke spánku, když vidím, že se ke mně někdo blíží. Nejprve jsem si myslel, že mě někdo přišel z toho místa vyhnat pryč, byl to ale středoškolský student Murat, který mě přišel přivítat ve své vesnici. A tak jsme se bavili o Turecku a o Česku a všem možném. Během toho mi také ukazoval různé fotky a mě zaujalo, že tam má často jednu dívku, kterou označoval jako kamarádku. Nenapadlo mě nic jiného než se ho zeptat, proč jeho kamarádka není jeho přítelkyní. Od té doby se celý rozhovor změnil z vesměs formálních frází na mnohem osobnější rozhovor. Bavili jsme se o různých společenských tématech, třeba o politice či náboženství. A také o tom, jak je, když nemůžete s někým chodit, protože to vaši ani její rodiče mimo jiné z náboženských důvodů neschvalují.
 
@@ -16,7 +16,9 @@ Tato emoční centra, která mohou za vyvolávání strachu, jsou pro člověka 
 
 Než jsem vjížděl do Albánie, dostal jsem neuvěřitelné množství upozornění, co všechno se mi určitě stane. A hned po přejetí hranic jsem měl opravdu pocit, že to dobře nedopadne. Rozbořené silnice a podél nich co kousek mrtvola zvířete, z oken domů vyčuhující sláma, zírající lidé a do toho všeho zní z ampilónů svolávání k modlitbě pro muslimy, které je docela strašidelné, když ho člověk slyší poprvé. Láďa Zibura někde psal, že po doznění očekával výbuch jako v amerických filmech. Přesně ten pocit jsem měl i já! Nakonec jsem v té zemi strávil týden a vůbec se mi nechtělo odjíždět. Ze všech evropských zemí, ve kterých jsem byl, se mi právě v Albánii líbilo nejvíce, v žádné jiné evropské zemi jsem nezažil tolik přátelských lidí. Když jsem pak hledal statistiky, jak vlastně nebezpečná Albánie je, zjistil jsem, že moje počáteční obavy se vůbec nezákladaly na pravdě. Ano, Albánie je _nebezpečnější_ než třeba Česko, ale není _nebezpečná_. Pokud zemi projede na kole jako já, máte velice malou šanci, že se vám něco opravdu stane.
 
-Obavy z toho, že by se mi během cesty fyzicky něco stalo, nemám už téměř vůbec. Je tady ale něco jiného, co se k tomuto tématu váže: opuštění komfortní zóny.
+Obavy z toho, že by se mi během cesty fyzicky něco stalo, nemám už téměř vůbec. Je tady ale něco jiného, co se k tomuto tématu váže: opuštění komfortní zóny. Přijít jen tak za někým, koho neznám, a začít se s ním bavit podobně, jako to udělal Murat se mnou, není pro mě jednoduché. Ale chci se to naučit. Abych si to usnadnil, napadlo mě vytvořit si projekt s pracovním názvem „1000 tváří”. Cílem bude během celé cesty sesbírat portréty 1000 lidí, které potkám. Různé národnosti, náboženství, sociální vrstvy, zaměstnání, cokoliv. Chci být více novinář než cestoval a více pozorovatel než soudce. To mě bude nutit se s těmi lidmi potkávat, protože dokud těch portrétů nesesbírám 1000, tak b
+
+
 
 _\(bude pokračování!\)_
 
