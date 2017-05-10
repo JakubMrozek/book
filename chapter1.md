@@ -1,4 +1,4 @@
-# Cesta kolem světa
+# Cesta kolem světa?
 
 Minulý rok jsem projížděl podél pobřeží Turecka a občas se stalo, že jsem musel spát venku, protože nikde v okolí nebyla žádná možnost ubytování. Jednou jsem už téměř za tmy vjedl do vesnice a pomalu se začal chystat ke spánku, když vidím, že se ke mně někdo blíží. Nejprve jsem si myslel, že mě někdo přišel z toho místa vyhnat pryč, byl to ale středoškolský student Murat, který mě přišel přivítat ve své vesnici. A tak jsme se bavili o Turecku a o Česku a všem možném. Během toho mi také ukazoval různé fotky a mě zaujalo, že tam má často jednu dívku, kterou označoval jako kamarádku. Nenapadlo mě nic jiného než se ho zeptat, proč jeho kamarádka není jeho přítelkyní. Od té doby se celý rozhovor změnil z vesměs formálních frází na mnohem osobnější rozhovor. Bavili jsme se o různých společenských tématech, třeba o politice či náboženství. A také o tom, jak je, když nemůžete s někým chodit, protože to vaši ani její rodiče mimo jiné z náboženských důvodů neschvalují.
 
