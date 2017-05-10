@@ -16,7 +16,9 @@ Tato emoční centra, která mohou za vyvolávání strachu, jsou pro člověka 
 
 Než jsem vjížděl do Albánie, dostal jsem neuvěřitelné množství upozornění, co všechno se mi určitě stane. A hned po přejetí hranic jsem měl opravdu pocit, že to dobře nedopadne. Rozbořené silnice a podél nich co kousek mrtvola zvířete, z oken domů vyčuhující sláma, zírající lidé a do toho všeho zní z ampilónů svolávání k modlitbě pro muslimy, které je docela strašidelné, když ho člověk slyší poprvé. Láďa Zibura někde psal, že po doznění očekával výbuch jako v amerických filmech. Přesně ten pocit jsem měl i já! Nakonec jsem v té zemi strávil týden a vůbec se mi nechtělo odjíždět. Ze všech evropských zemí, ve kterých jsem byl, se mi právě v Albánii líbilo nejvíce, v žádné jiné evropské zemi jsem nezažil tolik přátelských lidí. Když jsem pak hledal statistiky, jak vlastně nebezpečná Albánie je, zjistil jsem, že moje počáteční obavy se vůbec nezákladaly na pravdě. Ano, Albánie je _nebezpečnější_ než třeba Česko, ale není _nebezpečná_. Pokud zemi projede na kole jako já, máte velice malou šanci, že se vám něco opravdu stane.
 
-Obavy z toho, že by se mi během cesty fyzicky něco stalo, nemám téměř vůbec. Děsí mě ale představa toho, že nevím, co bude další den. Při všech mých cestách jsem vždy věděl, kde budu spát ten další den. Našel jsem si jeden, dva penziony a hotel do rezervy. 
+Obavy z toho, že by se mi během cesty fyzicky něco stalo, nemám už téměř vůbec. Děsí mě ale představa toho, že nevím, co bude další den. Při všech mých cestách jsem vždy věděl, kde budu spát ten další den. Našel jsem si jeden, dva penziony a hotel do rezervy. A vždy jsem měl u všeho plán A, B a pro jistotu i C. Zálohování fotek mám na několika službách, protože co kdyby jedna měla problém. Bankovních účtů mám několik, protože co kdyby jedna banka zkrachovala. A neptejte se mě, kolik mám cestovních pasů do rezervy, kdyby se jeden ztratil, to vám nepovím.
+
+
 
 
 
