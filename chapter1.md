@@ -18,5 +18,9 @@ Než jsem vjížděl do Albánie, dostal jsem neuvěřitelné množství upozorn
 
 Obavy z toho, že by se mi během cesty fyzicky něco stalo, nemám už téměř vůbec. Je tady ale něco jiného, co se k tomuto tématu váže: opuštění komfortní zóny. Přijít jen tak za někým, koho neznám, a začít se s ním bavit podobně, jako to udělal Murat se mnou, není pro mě jednoduché. Ale chci se to naučit. Abych si to usnadnil, napadlo mě vytvořit si projekt s pracovním názvem „1000 tváří”. Cílem bude během celé cesty sesbírat portréty 1000 lidí, které potkám. Různé národnosti, náboženství, sociální vrstvy, zaměstnání, cokoliv. To mi doufám pomůže dávat se více do kontaktu s místními lidmi. Chci být více novinář než cestoval a více pozorovatel než soudce. 
 
+## Jako Charles Lindbergh
+
+
+
 _\(bude pokračování!\)_
 
