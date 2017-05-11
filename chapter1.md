@@ -14,11 +14,11 @@ Než jsem vjížděl do Albánie, dostal jsem neuvěřitelné množství upozorn
 
 Strach z toho, že by se mi během cesty fyzicky něco stalo, nemám už téměř vůbec. Je tady ale něco jiného, co se k tomuto tématu váže: opuštění komfortní zóny. Přijít jen tak za někým, koho neznám, a začít se s ním bavit podobně, jako to udělal Murat se mnou, není pro mě jednoduché. Ale chci se to naučit. Abych si to usnadnil, napadlo mě vytvořit si projekt s pracovním názvem „1000 tváří”. Cílem bude během celé cesty sesbírat portréty 1000 lidí, které potkám. Různé národnosti, náboženství, sociální vrstvy, zaměstnání, cokoliv. To mi doufám pomůže dávat se více do kontaktu s místními lidmi. Chci být více novinář než cestoval a více pozorovatel než soudce.
 
-## Jako Charles Lindbergh
+## Žádné turistické oblasti
 
 Když jsem poprvé někam cestoval, tak jsem si nejprve vyhledal všechna zajímavá místa v okolí, abych je navštil. Dnes si je také vyhledám, ale spíše proto, abych se jim vyhnul. Turistické oblasti mě příliš nelákají, nebo lépe řečeno, nelákají mě vůbec. Chtěl bych proto hlavně jezdit do míst, kde turisté příliš nejezdí.
 
 Nejzajímavější země, ve které jsem byl, je rozhodně Azerbajdžán. Na cestu z hranic s Gruzií až na druhý konec země do Baku jsem měl 4 dny. Musel jsem proto jet kratší cestou, která není tak zajímavá a turisté tam vůbec nejezdí. A občas jsem měl pocit, že jsem byl na mnoha místech první turista, který tam kdy přišel. Lidé mě chytali na cestě a dávali mi na nosič živou rybu nebo meloun. Potkal jsem muslima, který mě doslova dotáhl domů a začal mě opíjet vodkou \(ano, taky jsem si myslel, že muslimové nikdy alkohol nepijí, to však přestává platit, když přijede do vesnice Čech\). A nebo jsem potkal bývalého sovětského mistra v karate, který mi začal jen tak masírovat nohy \(a pak jsem dva dny kulhal\). Věřte mi, tohle se vám opravdu v místě, kde je mnoho turistů, nikdy nestane. Je to ale to, na co si pak člověk vzpomene jako první.
 
-_\(bude pokračování!\)_
+Mám toho mnoho, co bych chtěl vidět a zažít. V Mongolsku se naučit jezdit na koni a kus země na něm projet. V Jižní Koreji se setkat s lidmi, kterým se podařilo utéct z té Severní. V Japonsku jít na oběd s pravou Gejšu. V Indii projít stejnou trasu, kterou vedl Solný pochod. 
 
