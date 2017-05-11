@@ -16,7 +16,13 @@ Strach z toho, že by se mi během cesty fyzicky něco stalo, nemám už témě�
 
 ## Jako Charles Lindbergh
 
-Když jsem poprvé někam vyjížděl, tak jsem si nejprve vyhledal všechna zajímavá místa v okolí, abych je navštil. Dnes si je také vyhledám, ale spíše proto, abych se jim vyhnul.
+Když jsem poprvé někam cestoval, tak jsem si nejprve vyhledal všechna zajímavá místa v okolí, abych je navštil. Dnes si je také vyhledám, ale spíše proto, abych se jim vyhnul. Turistické oblasti mě příliš nelákají, nebo lépe řečeno, nelákají mě vůbec. Chtěl bych proto hlavně jezdit do míst, kde turisté příliš nejezdí.
+
+Nejzajímavější země, ve které jsem byl, je rozhodně Azerbajdžán. Na cestu z hranic s Gruzií až na druhý konec země do Baku jsem měl 4 dny. Musel jsem proto jet kratší cestou, která není tak zajímavá a turisté tam vůbec nejezdí. A občas jsem měl pocit, že jsem byl na mnoha místech první turista, který tam kdy přišel. Lidé mě chytali na cestě a dávali mi na nosič živou rybu nebo meloun. Potkal jsem muslima, který mě doslova popadl za ruku a dotáhnul domů a začal mě opíjet vodkou \(ano, taky jsem si myslel, že muslimové nikdy alkohol nepijí, to však přestává platit, když přijede do vesnice Čech\). A nebo jsem potkal bývalého sovětského mistra v karate, který mi začal jen tak masírovat nohy. Věřte mi, tohle se vám opravdu v místě, kde je mnoho turistů, nikdy nestane.
+
+
 
 _\(bude pokračování!\)_
+
+
 
